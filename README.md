@@ -1,0 +1,1 @@
+# Arhitektyra-apparatnuh-sredstv1
